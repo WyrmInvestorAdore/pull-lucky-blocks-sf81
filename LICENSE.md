@@ -1,4 +1,4 @@
-#  
+#  exclusive Scripts for pull lucky blocks offers the most advanced pull lucky blocks Script, with god mode and custom skins. Perfect for dominating any
 
 
 
